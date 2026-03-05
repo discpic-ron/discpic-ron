@@ -4,7 +4,7 @@
 
 😄 Pronouns: He/Him
 
-📫 How to reach me: **granddriod1210@gmail.com**
+📫 How to reach me (open for freelance work): **granddriod1210@gmail.com**
 
 **Languages/Tools:**
 
